@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm kinda a high school teacher
+High School IT teacher in my spare time
 
 
 ## 🌐 Socials:
